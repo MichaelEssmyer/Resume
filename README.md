@@ -4,7 +4,7 @@ Michael Dale Essmyer
 Kansas City, Missouri 64110
 Mde9rb@mail.umkc.edu
 660-265-8548
-_________________________ Professional Summary ________________________
+_________________________ Professional Summary ________________________ 
 I am currently studying at University Missouri- Kansas City to become a mechanical engineer and a computer scientist. 
 My interest is to develop research technology for ecologist. I have been a pool supervisor and a red cross instructor. 
 I am a real people person that likes seeing others have fun while being safe.
